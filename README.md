@@ -1,4 +1,4 @@
-# Hi 👋 I'm Rutu Yadav
+# Hi 👋 I'm Rutuja Yadav
 
 🚀 DevOps Enthusiast | Cloud Learner  
 
